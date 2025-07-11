@@ -20,4 +20,4 @@
 结语  
 优质的日本AV平台已经成为现代观众的重要选择。多样化的内容、高画质的播放、便捷的操作流程共同成就了一场又一场令人满意的观影体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav04 )</span>
